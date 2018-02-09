@@ -1,2 +1,23 @@
-# DA-AWSAME
-NOPE DOPE
+# DA-AWSAMEST TINGS OF ALL
+YEP NOPE DOPE 
+
+DERPER IS GONE
+HI I AM DERPER
+NO YOU ARE NOT
+DERP
+ERP
+RP
+P
+SORRY
+I
+HAVE...
+PROBLEMS.......
+BYe.
+Not byE
+Bye BYE
+BYslfj
+sDFL:KJflkajf
+<!DOCKTYPE html>
+<html>
+<body>
+Thats what im made of
